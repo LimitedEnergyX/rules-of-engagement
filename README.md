@@ -1,4 +1,4 @@
-# The 10 Rules Of Engagement
+# The 10 Rules Of AI Engagement
 
 ### Global Ethics And Operating Instructions
 
